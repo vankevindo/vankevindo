@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **vankevindo@pm.me**
 
-- ⚡ Fun fact **im dead**
+- ⚡ Fun fact **im studying law**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
