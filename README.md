@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Python, Javascript, Machine Learning**
 
-- 📫 How to reach me **vankevindo@pm.me**
+- 📫 Reach me at **vankevindo@pm.me**
 
 - ⚡ Fun fact **im studying law**
 
